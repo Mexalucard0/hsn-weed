@@ -1,2 +1,7 @@
 # hsn-weed
-advanced weed system
+Advanced Weed System
+My discord;
+https://discord.gg/6FQhKDXBJ6
+
+
+
